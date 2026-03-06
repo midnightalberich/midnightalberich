@@ -6,9 +6,9 @@
 
 <p align="center">⋆.˚i'm a kaeya main ♡‧₊˚
 
-<p align="center">06.03.2023
+<p align="center">07.04.2023
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
 ✥  c+h freely • heavily sensitive • do not copy my skins • i'm chill • i'm 
-a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • minors strictly dni i'm an adult
+a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • please take note that i'm an adult
