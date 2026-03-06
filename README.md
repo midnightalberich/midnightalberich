@@ -15,4 +15,4 @@ a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign a
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
 
-✥ fandoms: genshin impact, stranger things, marvel, naruto, twisted wonderland, oshi no ko, attack on titan, hetalia, bbc sherlock ✦ㅡ 
+✥ fandoms: genshin impact, stranger things, marvel, naruto, twisted wonderland, oshi no ko, attack on titan, hetalia, harry potter ✦ㅡ 
