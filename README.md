@@ -11,4 +11,4 @@
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
 ✥  c+h freely • heavily sensitive • strictly do not copy my skins • i'm chill • i'm 
-a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • please take note that i'm an adult so dni if you're a minor unless i already know you and feel comfortable around me
+a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • please take note that i'm an adult so dni if you're a minor unless i already know you or you feel comfortable around me
