@@ -1,16 +1,14 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=doodlesuit&label=cool+it+!)
 
-<!--
-**midnightalberich/midnightalberich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">✧･ﾟ: *✧･ﾟ:*
 
-Here are some ideas to get you started:
+![30734](https://github.com/user-attachments/assets/771c08d3-9dba-48eb-9c39-4453d0deff5d)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">⋆.˚i'm a kaeya main ♡‧₊˚
+
+<p align="center">06.03.2023
+
+<p align="center">✧･ﾟ: *✧･ﾟ:*
+  
+✥  c+h freely • heavily sensitive • do not copy my skins • i'm chill • i'm 
+a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • minors strictly dni i'm an adult
