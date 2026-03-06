@@ -11,4 +11,8 @@
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
 ✥  c+h freely • heavily sensitive • strictly do not copy my skins • i'm chill • i'm 
-a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • ar43 on genshin asia server
+a non-sharing yumejoshi • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal • ar43 on genshin asia server ✦ㅡ 
+
+<p align="center">✧･ﾟ: *✧･ﾟ:*
+
+✥ fandoms: genshin impact,stranger things,marvel,naruto,twisted wonderland,oshi no ko,attack on titan
